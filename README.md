@@ -1,6 +1,7 @@
 ## Hello , just one thing. Dont pmo. W2I ALWAYS/uf
 I fr will only take someones antics of being around me IF i like u, other wise ur hidden/blocked dont try me ill do it.
 ![yess](https://github.com/user-attachments/assets/37a49451-e4f6-4bee-89bc-6fb957c9842b)
+
 Dni- **Transphobes**, homophobes. children under 14 dni, if ur under that, its fine i'd just perfer you would be older. Any one i dont fucking like, dont talk 2 me. If you cover me ur on that list. Not like a have one but, ur getting blocked and hidden if you cover me or any friend im sitting with. 
 ***C+H is ONLY WELCOME when it is in my name, otherwise ask you bastards.***
 
