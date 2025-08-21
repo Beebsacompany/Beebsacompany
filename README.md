@@ -19,7 +19,9 @@ Also just to let u know, i am Wizard cookie and stardust irl, idfc what u say th
 
 Relationships-
 Bf- Andy <3 dni w him unless u talk 2 me first.
-My drink- Melted dni w them unless u talk to me first.
+
+My drink- Melted <3  dni w them unless u talk to me first.
+
 Any other friends are fine to int with.
 
 
