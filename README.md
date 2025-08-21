@@ -17,5 +17,10 @@ Also just to let u know, i am Wizard cookie and stardust irl, idfc what u say th
 
 (If u wanna know more or smth, go to my straw and READ MY PRONOUNS. If you wanna talk 2 me read them first and leave smth behind pretty please. *I'm asking nicely for a reason.*)
 
+Relationships-
+Bf- Andy <3 dni w him unless u talk 2 me first.
+My drink- Melted dni w them unless u talk to me first.
+Any other friends are fine to int with.
+
 
 
